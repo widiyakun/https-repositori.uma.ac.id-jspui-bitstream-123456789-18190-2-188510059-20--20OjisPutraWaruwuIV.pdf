@@ -1,0 +1,1 @@
+# https-repositori.uma.ac.id-jspui-bitstream-123456789-18190-2-188510059-20--20OjisPutraWaruwuIV.pdf
